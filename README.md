@@ -1,0 +1,5 @@
+- 👋 Meu Nome é Esli Novaes Leite
+- 👀 Sempre busco expandir meus horisontes e aprofundar meus conhecimentos.
+- 🌱 Atualmente estou aprendendo java
+- 💞️ Sou apaixonado por Desafios e inovação.
+- 📫 Caso queira entrar em contato:Esli.nleite@gmail.com
